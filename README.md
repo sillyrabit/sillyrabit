@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sillyrabit
 - 👀 I’m interested in learning everything good
-- 🌱 I’m currently learning about current events.
+- 🌱 I’m currently learning about helping the blind walk right..
 - 💞️ I’m looking to collaborate on business and training
 - 📫 How to reach me at pierredubois01218@gmail.com 
 
